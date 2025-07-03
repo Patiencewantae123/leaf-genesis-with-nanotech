@@ -72,7 +72,7 @@ We welcome researchers, engineers, and nanotechnology enthusiasts to:
 ## Contact
 
 For more information or collaboration opportunities, please reach out to:
-**Patience Wangui**
+**Patience  Wantae123**
 
 📍 Nairobi, Kenya
 
